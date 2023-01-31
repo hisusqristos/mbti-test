@@ -4,7 +4,8 @@
 - Favorite pair of andranik's converses
 - You often think about squeezing chihuahuas (their eyes out)
 - Your family members usually change the subject when their interlocutor asks about you
-- You get more stickers than messages as answer 
+- You get more stickers than messages as an answer 
 - It doesn't take much time to lose your girlfirend to your best friend
-- How sharp are your glass frames (neutral if you dont wear glasses)
+- How sharp are your glass frames (choose neutral if you dont wear glasses)
 - Someone hugs everyone from the friend group but gives YOU a handshake
+- You usually don't end the conversation
