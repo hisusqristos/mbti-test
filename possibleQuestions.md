@@ -8,7 +8,8 @@
 - It doesn't take much time to lose your partner to your best friend (choose neutral if you never had one)
 - How sharp are your glass frames (choose neutral if you dont wear glasses)
 - Someone hugs everyone from the friend group but gives YOU a handshake
-- You usually don't end the convers- You often find yourself talking about politics
+- You usually don't end the conversation
+- You often find yourself talking about politics
 - You enjoy writing song lyrics 
 - You want a yandere girlfriend
-- You will become bald soonation
+- You will become bald soon
