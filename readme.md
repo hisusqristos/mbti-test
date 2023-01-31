@@ -1,4 +1,5 @@
-### --
+![hr](https://user-images.githubusercontent.com/25614707/215809104-0b6d8e70-9902-4e51-ad20-1672bb73bf51.png)
+
 Desperate people take personality tests to gain self-understanding and improve themselves. They can provide validation and identify patterns in thoughts and behaviors. You should definetly find out who you are from Istoria Igrushek.
 
 ## mbti tests
