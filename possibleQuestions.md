@@ -1,0 +1,10 @@
+- How often do your friends ask you to take care of your hygiene
+- How long can you be on your knees on grechka
+- People usually don't answer to your phone calls (or make you wait for 4+ gudoks)
+- Favorite pair of andranik's converses
+- You often think about squeezing chihuahuas (their eyes out)
+- Your family members usually change the subject when their interlocutor asks about you
+- You get more stickers than messages as answer 
+- It doesn't take much time to lose your girlfirend to your best friend
+- How sharp are your glass frames (neutral if you dont wear glasses)
+- Someone hugs everyone from the friend group but gives YOU a handshake
