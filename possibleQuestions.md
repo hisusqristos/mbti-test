@@ -1,11 +1,11 @@
-- How often do your friends ask you to take care of your hygiene
+- How often do your friends ask you to take care of your hygiene (choose neutral if you don't have friends)
 - How long can you be on your knees on grechka
 - People usually don't answer to your phone calls (or make you wait for 4+ gudoks)
 - Favorite pair of andranik's converses
 - You often think about squeezing chihuahuas (their eyes out)
 - Your family members usually change the subject when their interlocutor asks about you
 - You get more stickers in response than messages 
-- It doesn't take much time to lose your girlfirend to your best friend
+- It doesn't take much time to lose your partner to your best friend (choose neutral if you never had one)
 - How sharp are your glass frames (choose neutral if you dont wear glasses)
 - Someone hugs everyone from the friend group but gives YOU a handshake
 - You usually don't end the convers- You often find yourself talking about politics
