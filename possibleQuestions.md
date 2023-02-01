@@ -13,3 +13,4 @@
 - You enjoy writing song lyrics 
 - You want a yandere girlfriend
 - You will become bald soon
+- Often you are being infinitely right albeit your woman is crying
