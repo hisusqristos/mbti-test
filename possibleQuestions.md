@@ -7,7 +7,7 @@
 - You get more stickers in response than messages 
 - It doesn't take much time to lose your partner to your best friend (choose neutral if you never had one)
 - How sharp are your glass frames (choose neutral if you dont wear glasses)
-- Someone hugs everyone from the friend group but gives YOU a handshake
+- Someone hugs everyone from the friend group but gives YOU a handshake (choose agree max if միշտ էդ բաները անում էր ինքը)
 - You usually don't end the conversation
 - You often find yourself talking about politics
 - You enjoy writing song lyrics 
